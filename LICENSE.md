@@ -1,4 +1,4 @@
-# 
+# Avancé DaVinci Resolve outils pour Mac OS | Meilleur DaVinci Resolve outils pour PC Windows. Avec enregistrement de macros et intégration du chat — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
